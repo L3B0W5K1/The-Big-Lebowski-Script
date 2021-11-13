@@ -1,4 +1,4 @@
-THE BIG LEBOWSKI
+THE BIG LEBOWSKI SCRIPT
 
 We are floating up a steep scrubby slope.  We hear male voices 
 gently singing "Tumbling Tumbleweeds" and a deep, affable, 
